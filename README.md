@@ -6,7 +6,7 @@ avboy.vip  新地址发布页
 
 线路1：https://www.avboy8.vip
 ---
-线路2：https://www.avbus12.vip
+线路2：https://www.avbus12.vip/forum.php
 ---
 
 
